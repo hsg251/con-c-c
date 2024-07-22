@@ -1,0 +1,7 @@
+- chào
+- scirpt này tôi làm ra ko có ý j hết
+- tôi chỉ muốn các bạn vô nick tt của tôi
+- và tặng tôi một cái folow
+- đường link tiktok của tôi đây
+- https://www.tiktok.com/@l.thanh.sn300
+- cảm ơn các bạn
